@@ -4,4 +4,4 @@ Meu nome é Wagner
 
 **Tit4NiO** 
 
-![](https://media1.tenor.com/m/1_me9-BHVXIAAAAC/strong-women-angel.gif)
+![]https://tenor.com/pt-BR/view/wiking-viking-s%C5%82owianin-s%C5%82owianie-slowianie-gif-22099700
